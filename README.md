@@ -1,0 +1,2 @@
+# Trancas
+inicial
